@@ -1,6 +1,6 @@
 ## Hi there 👋 It's me Aravinth
 
-Automation Tester
+
 <img align="right" width="370" height="290" src="https://media1.tenor.com/m/kzS2L5YSPrwAAAAC/collings-collings-real-estate.gif">                                                
 - 👯 I’m looking for a FullTime Job
 - 📫 How to reach me :
